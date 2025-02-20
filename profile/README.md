@@ -13,6 +13,8 @@ O **Minecraft 1.21.61 APK** chegou trazendo diversas novidades incríveis para o
 
 A Mojang sempre surpreende com atualizações que expandem o universo do Minecraft. A versão 1.21.61 traz otimizações importantes, novos mobs, biomas, estruturas inéditas e ajustes no desempenho para proporcionar uma jogabilidade mais fluida e envolvente.
 
+## Junte-se à comunidade: [APKSIL](https://t.me/apktsil)
+
 ## 🌳 Novos Biomas e Estruturas
 
 Cavernas Antigas – Um bioma subterrâneo misterioso cheio de segredos e loot valioso.

@@ -1,8 +1,8 @@
 # Minecraft 1.21.61 APK Download Grátis Última versão (Official) Para Android
 
-| Nome | [Minecraft 1.21.61 APK](https://apksil.com/minecraft-1-21-60-10-apk/) |
+| Nome | [Minecraft 1.21.61 APK](https://apksil.com/minecraft-1-21-61/) |
 |--------------|-------|
-| ![min7](https://github.com/user-attachments/assets/b193edf0-8e0b-4613-b492-018318ec7cf4) | <a href="https://apksil.com/minecraft-1-21-60-10-apk/">![download 1](https://github.com/user-attachments/assets/63059ddb-640f-4061-a534-b77f4c7a2039)</a> |
+| ![min7](https://github.com/user-attachments/assets/b193edf0-8e0b-4613-b492-018318ec7cf4) | <a href="https://apksil.com/minecraft-1-21-61/">![download 1](https://github.com/user-attachments/assets/63059ddb-640f-4061-a534-b77f4c7a2039)</a> |
 | Versão | v1.21.61 |
 | Atualizar | 2025 |
 | Developer | Mojang |
@@ -13,7 +13,7 @@ O **Minecraft 1.21.61 APK** chegou trazendo diversas novidades incríveis para o
 
 A Mojang sempre surpreende com atualizações que expandem o universo do Minecraft. A versão 1.21.61 traz otimizações importantes, novos mobs, biomas, estruturas inéditas e ajustes no desempenho para proporcionar uma jogabilidade mais fluida e envolvente.
 
-## Junte-se à comunidade: [APKSIL](https://t.me/apktsil)
+## 👉👉👉Junte-se à comunidade: [Aqui](https://t.me/apktsil)
 
 ## 🌳 Novos Biomas e Estruturas
 
